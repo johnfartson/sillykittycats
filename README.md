@@ -1,10 +1,14 @@
-- ⭐   Hello pooks im Dakota or leon I don't mind which !!! 
-- 👀 I’m interested in re, fnaf, lnm, odertari & 6arleyhuman
-- 🌱 I’m currently learning how to stop being a idiot 🤕
-- 💞️ I’m looking to collaborate on nothing... 
-- 📫 How to reach me ponytown, roblox or tiktok or anything
+hola/Hello!! there im Dakota or leon or kota I don't mind which one!!! 
+ - main interests:re,fnaf,deaf,lnm, odertari,6arleyhuman,d3r & DBH :3
+ - I’m currently learning how to stop being a idiot + spanish 🤕
+ - thinking of doing smth stupid.
+ - How to reach me - ponytown, roblox or tiktok or discord - kotasstuff
 
-<!--- also please respect my friends and gf ty !! 
-sillykittycats/sillykittycats is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+ -  also please respect my friends and gf ty much appreciated :D!!
+if you want to hang w me or gf this is our names - mine:sillykittycats & gf:OverPade :D
+please int with us or me we/im not scary ☹️
+
+ALSO:
+read because uhhhh i said so and i has some stuff about me you might want to know i guess 🤷‍♀️
+
+oki bye bye see you later!!(maybe)🌟 
